@@ -19,5 +19,8 @@
 
 ![time_by_course](https://github.com/user-attachments/assets/e8b0c415-1540-43f5-9067-acca639afebd)
 
+![image](https://github.com/user-attachments/assets/0911facc-e7fe-4538-8be3-38dc5929e939)
+
+
 
 
